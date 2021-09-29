@@ -1,4 +1,4 @@
-## Oiiii! Eu sou a Rosângela Lins 😊
+## Oii! Eu sou a Rosângela Lins 😊
 
 <div align="center">
   <a href="https://github.com/rosangelalins">
